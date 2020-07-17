@@ -1,3 +1,3 @@
-# Welcome to my blog
+# 小号的第二个窝
 
-I'm glad you are here. I plan to talk about ...
+欢迎来到小号的第二个窝！
